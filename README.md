@@ -1,4 +1,4 @@
-# (Just Like) Starting Over
+# (Just Like) Starting Over!
 
 **Artist:** John Lennon  
 **Year:** 1980  
